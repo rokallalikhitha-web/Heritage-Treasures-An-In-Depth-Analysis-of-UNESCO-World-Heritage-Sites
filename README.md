@@ -9,17 +9,17 @@ Team ID: LTVIP2026TMIDS34739
 Team Leader:
 1. Rokalla Likhitha  
    Email: rokallalikhitha@gmail.com  
-Team Member
+Team Member:
 2. Kola Prashanthi  
    Email: kolaprashanthi1@gmail.com  
 
-  Team Member
+  Team Member:
 3. Yedida Vinitha  
    Email: yedidavinitha27@gmail.com  
-  Team Member
+  Team Member :
 4. Kona Veera Venkata Sai Mounika  
    Email: mounikakona26@gmail.com  
-   Team Member
+   Team Member :
 5. Esuru Vijaya  
    Email: esuruvijaya@gmail.com
 
