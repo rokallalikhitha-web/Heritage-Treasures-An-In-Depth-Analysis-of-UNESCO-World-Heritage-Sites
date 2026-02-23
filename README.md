@@ -12,7 +12,6 @@ Team Leader:
 Team Member:
 2. Kola Prashanthi  
    Email: kolaprashanthi1@gmail.com  
-
   Team Member:
 3. Yedida Vinitha  
    Email: yedidavinitha27@gmail.com  
